@@ -12,3 +12,6 @@ Kfc located beside the famous **Hanger theater** and it's also have a **drive th
 2. When you come out from the airport we go exactely 15kilometers towards to the south direction then we can seen a junction
 3. From that junction we go 2 kilometers towards north direction then we can seen a famous Crossroads resutarant.
 
+* Briyani
+* Chilly chicken
+* Apollo fish
